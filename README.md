@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ahola
 - 🌱 I’m a ZJUer major in IS.
 - 📫 How to reach me (QQ: 3246346061)
-Love Natual, love life~
+- Love Natual, love life~
 
 <!---
 opsAhola/opsAhola is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
