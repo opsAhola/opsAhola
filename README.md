@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ahola
-- 🌱 I’m an undergraduate new.
+- 🌱 I’m an undergraduate now.
 - 📫 How to reach me (QQ: 3246346061)
 - Love Natual, love life~
 
