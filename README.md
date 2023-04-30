@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ahola
-- 🌱 I’m a ZJUer and major in IS.
+- 🌱 I’m an undergraduate new.
 - 📫 How to reach me (QQ: 3246346061)
 - Love Natual, love life~
 
