@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ahola
 - 🌱 I’m an undergraduate now.
-- 📫 How to reach me (QQ: 3246346061)
+- 📫 How to reach me (QQ: 3246346061@qq.com)
 - Love Natual, love life~
 
 <!---
